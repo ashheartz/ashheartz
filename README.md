@@ -7,15 +7,15 @@ as in break them, so that i can make them not "chrome"books because i do NOT fuc
 
 my opinions on coding languages that i understand - not ordered
 
-  python: peak programming
+- python: peak programming
 
-  bash: typically fire
+- bash: typically fire
 
-  html: other peak programming but for websites
+- html: other peak programming but for websites
 
-  javascript: its really good but not peak
+- javascript: its really good but not peak
 
-  css: die die die die die die die die die die die die die die die die die die die die die die die die die die die i get its useful but it needs to die die die die die die
+- css: die die die die die die die die die die die die die die die die die die die die die die die die die die die i get its useful but it needs to die die die die die die
 
 things i make/made
   learn sci: peak game site    https://sites.google.com/view/learn-sci
