@@ -6,10 +6,15 @@ i fuck w chromebooks
 as in break them, so that i can make them not "chrome"books because i do NOT fuck w them
 
 my opinions on coding languages that i understand - not ordered
+
   python: peak programming
+
   bash: typically fire
+
   html: other peak programming but for websites
+
   javascript: its really good but not peak
+
   css: die die die die die die die die die die die die die die die die die die die die die die die die die die die i get its useful but it needs to die die die die die die
 
 things i make/made
