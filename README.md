@@ -18,8 +18,8 @@ my opinions on coding languages that i understand - not ordered
 - css: die die die die die die die die die die die die die die die die die die die die die die die die die die die i get its useful but it needs to die die die die die die
 
 things i make/made
-  learn sci: peak game site    https://sites.google.com/view/learn-sci
-  Sign into your personal account on a school Chromebook (or maybe others) (requires another device): peak exploit totally not patched and outclassed - on TN
-  FUCK: an acual decent exploit i suppose - on TN
+- learn sci: peak game site    https://sites.google.com/view/learn-sci
+- Sign into your personal account on a school Chromebook (or maybe others) (requires another device): peak exploit totally not patched and outclassed - on TN
+- FUCK: an acual decent exploit i suppose - on TN
 
 discord: ash.heartz - don't add me find me in tn or learn sci discord server
