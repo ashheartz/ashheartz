@@ -20,7 +20,6 @@ things i make/made
 words based on how much i like them:
 - peak: peak word
 - based: based af
-- wowzers: fav word tbh
 - splendid: a splendid word
 
 discord: ash.heartz - don't add me find me in tn or learn sci discord server
