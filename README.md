@@ -1,7 +1,7 @@
 # ash
 its meeee
 
-hi im ash
+hi im ash 14yo genderfluid usually prefer girl tho
 i fuck w chromebooks
 as in break them, so that i can make them not "chrome"books because i do NOT fuck w them
 
