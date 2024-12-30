@@ -1,7 +1,7 @@
-# ash
+# sophie
 its meeee
 
-hi im ash 14yo genderfluid usually prefer girl tho
+hi im sophia 14yo trans
 
 i fuck w chromebooks
 
